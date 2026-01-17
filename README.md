@@ -6,6 +6,6 @@ I attended an industry talk by Ts. Hj. Abdul Alim Bin Abdul Talib. I learn the i
 
 <img width="377" height="376" alt="image" src="https://github.com/user-attachments/assets/e0986bf9-f276-44a9-9775-aae3d36b403a" />
 
-[Screenshot 2026-01-14 at 20.24.25.pdf](https://github.com/user-attachments/files/24690642/Screenshot.2026-01-14.at.20.24.25.pdf)
+[Academic Writing.pdf](https://github.com/user-attachments/files/24690642/Screenshot.2026-01-14.at.20.24.25.pdf)
 
 
